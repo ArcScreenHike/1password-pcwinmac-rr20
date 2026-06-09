@@ -1,4 +1,4 @@
-# 
+# Instantâneo 1Password complementos para Mac OS | Top 1Password complementos para PC Windows. Com cofre criptografado e modo jogo — otimizado para máximo desempenho em cada plataforma.
 
 
 
